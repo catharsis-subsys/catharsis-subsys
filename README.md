@@ -1,5 +1,4 @@
-# info
-WIP by Aorta  
+# info  
 I'm not really big on decorating these ..  
 c+h always welcome from other postal dudes&does or duke nukems  
   
